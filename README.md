@@ -3,7 +3,7 @@
 ## 1. Introduction:
 My name is Kai Kalma and I am in 10th grade. I live in Chatsworth, California.
 
-## 2. Summer Activities:u
+## 2. Summer Activities:
 Some activities that I did over summer was play volleyball in Florida. I also went to Hawaii and worked with dolphins there. Here is the link to the place that I worked at. (https://dolphinquest.com/)
 
 ## 3. New Skills Learned:
